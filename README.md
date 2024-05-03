@@ -1,1 +1,25 @@
 # RESUME
+Tahmid
+
+Abid Ajmal Tahmid
+
+ABID AJMAL TAHMID
+
+NDC
+
+NDC 23
+
+12303080
+
+LAB 21
+
+Section B
+
+Roll: 01
+
+ABID
+
+AJMAL
+
+TAHMID
+
